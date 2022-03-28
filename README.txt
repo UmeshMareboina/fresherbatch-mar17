@@ -1,1 +1,2 @@
-I Completed my btech in kits college khammam
+I Completed my btech in kits college 
+im from khammam
